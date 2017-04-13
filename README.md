@@ -2,7 +2,7 @@
 
 [LIVE DEMO](http://thenocklist.com/greenlabels/)
 
-1. DOWNLOAD THE [GREEN LABELS CONTENT INTEGRATION SYSTEM V406 ZIP](https://github.com/NOCKLIST/rastadread401)
+1. DOWNLOAD THE [GREEN LABELS CONTENT INTEGRATION SYSTEM V406 ZIP](https://github.com/NOCKLIST/greenlabels402)
 
 2. REGISTER WITH [ZAZZLE](http://www.zazzle.com/)
 
