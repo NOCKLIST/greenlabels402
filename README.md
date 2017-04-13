@@ -14,5 +14,5 @@ HERE IS WHERE YOU WILL FIND YOUR ASSOCIATE ID.  YOU WILL NEED THIS LATER FOR CRE
 5. PLACE YOUR ZAZZLE ID IN THE APPROPRIATE LINKS.  
 
 
-![](http://thenocklist.com/rastadread/images/portfolio/4.jpg)
+![](http://rlv.zcache.com/sour_diesel_classic_round_sticker-r3dabca46cdf542948668ecca008adf1e_v9wth_8byvr_325.jpg?bg=0x00000)
 
