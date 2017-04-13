@@ -1,4 +1,4 @@
-![](https://farm1.staticflickr.com/549/19267850633_b13d3d25bb_t.jpg)
+![](https://farm7.staticflickr.com/6072/6060489046_18751326b7_m.jpg)
 
 [LIVE DEMO](http://thenocklist.com/greenlabels/)
 
